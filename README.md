@@ -1,17 +1,15 @@
 ## Hi there 👋
 <img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/36745b84-9d35-4323-9deb-abb29fc31a7b" />
 
-<!--
-**Ninel-A/Ninel-A** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+༉‧₊˚.𝐒obre Mí . . .
+𝐧ombre: Ninel Alcocer
+𝐚podo: Nini
+𝐧𝐚:
+𝐡𝐞𝐢𝐠𝐡𝐭:
+𝐰𝐞𝐢𝐠𝐡𝐭:
+𝐬𝐩𝐞𝐜𝐢𝐞𝐬:
+𝐠𝐞𝐧𝐝𝐞𝐫:
+𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬:
+𝐬𝐞𝐱𝐮𝐚𝐥𝐢𝐭𝐲:
+𝐥𝐢𝐤𝐞𝐬:
+𝐝𝐢𝐬𝐥𝐢𝐤𝐞𝐬:
