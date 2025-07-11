@@ -1,4 +1,5 @@
 ## Hi there 👋
+<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/36745b84-9d35-4323-9deb-abb29fc31a7b" />
 
 <!--
 **Ninel-A/Ninel-A** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
