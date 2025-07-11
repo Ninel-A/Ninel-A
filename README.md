@@ -15,12 +15,13 @@ Nini
 Ingeniería Informática
 
 **🌍 País / Ciudad:**  
-Cbba- Bolivia
+Bolivia - Cbba
 
 ---
 
 ### > *"Buscando el Ctrl + Z en la vida real..."*
 
 ---
+<img width="186" height="156" alt="image" src="https://github.com/user-attachments/assets/f5ac29ae-fe79-4fce-b60e-453ad28b910b" />
 
 
