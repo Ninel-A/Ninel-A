@@ -22,6 +22,7 @@ Bolivia - Cbba
 ### > *"Buscando el Ctrl + Z en la vida real..."*
 
 ---
-<img width="186" height="156" alt="image" src="https://github.com/user-attachments/assets/f5ac29ae-fe79-4fce-b60e-453ad28b910b" />
+<img width="585" height="408" alt="image" src="https://github.com/user-attachments/assets/416aca34-496a-40c8-adee-bd57eb571b92" />
+
 
 
