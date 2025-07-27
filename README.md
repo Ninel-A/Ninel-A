@@ -6,10 +6,10 @@
 ---
 
 **👤 Nombre:**  
-Ninel Alcocer
+Ninel Daniela Alcocer Z.
 
 **🧸 Apodo:**  
-Nini
+Nini / Dani / O cualquier otro
 
 **🎓 Carrera que estudio:**  
 Ingeniería Informática
